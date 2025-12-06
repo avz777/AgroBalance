@@ -1,0 +1,1 @@
+The software description is avaliable there: https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://www.researchgate.net/publication/398173861_EXPERT_SYSTEM_FOR_DETERMINING_THE_DEMAND_OF_AGRICULTURAL_CROPS_FOR_FERTILIZERS&ved=2ahUKEwjV6YTYw6iRAxVIHRAIHdbVCZ0QFnoECBkQAQ&usg=AOvVaw2af0SL0RqZzsELtP_ZjqEO
